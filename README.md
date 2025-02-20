@@ -1,1 +1,1 @@
-
+Okay hola bueno espero y este corecto todo en mi proyecto hice una aplicacion de trabajo se podria decir yo y mi familia tenesmo un pequeno negocio aqui en estados unidos y sineto que de cierta manera eso serviria para personal interesadas en el emplo claro por eso me inpire en aser un formulario de trabajo gracias.
